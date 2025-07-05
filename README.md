@@ -23,4 +23,4 @@
 
 立即点击进入，发现你最喜欢的日本AV资源，开始你的私人影院之旅！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg57687/834354 ）</span>
